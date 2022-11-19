@@ -1,2 +1,2 @@
 **Shopping List Exercise**
-by Dana and Nikole
+by Dana Ben Gigi and Nikole Waintraub
